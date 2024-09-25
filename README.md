@@ -1,1 +1,1 @@
-Nama SAripudin SUjiwo
+Nama: Saripudin SUjiwo
